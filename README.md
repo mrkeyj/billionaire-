@@ -1,2 +1,0 @@
-# billionaire-
-earnings 
